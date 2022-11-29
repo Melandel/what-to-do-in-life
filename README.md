@@ -18,3 +18,8 @@
 > Apply when recognizing situations
 
 * When feeling low, have a default resourcing activity that can be done alone to distract mind positively
+
+## People are not at my disposal
+> Being in a situation of immediate distress does not justify that people who love me should make themselve available for me
+
+* That's right. The path is to be walked alone - others may join for the duration they wish, but one cannot depend on them
