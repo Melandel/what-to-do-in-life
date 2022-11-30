@@ -32,3 +32,7 @@ What are things that make me feel happy that I can do on my own?
 * Experiment (increase pool of possible things to do)
 * Show to others a taste that they don't know of (authenticity)
 
+## Priorization
+> Environmental habits(exercise, cleaning, papers) must go on first priority, even though they are the least important. It's infrastructure, not growth - but it is a pre-requisite for quality growth
+
+* [The two 2-minutes rules](https://youtu.be/0CmtDk-joT4)
