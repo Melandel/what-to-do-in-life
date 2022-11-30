@@ -23,3 +23,12 @@
 > Being in a situation of immediate distress does not justify that people who love me should make themselve available for me
 
 * That's right. The path is to be walked alone - others may join for the duration they wish, but one cannot depend on them
+
+## Direction (solo)
+> Getting faster at things I already do does not seem to be the way, because it's lonely at the top and it gets repetitive. Perfection is a goal of efficiency, not personal growth.
+
+What are things that make me feel happy that I can do on my own?
+* Inspire (art)
+* Experiment (increase pool of possible things to do)
+* Show to others a taste that they don't know of (authenticity)
+
