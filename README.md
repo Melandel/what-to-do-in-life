@@ -36,3 +36,8 @@ What are things that make me feel happy that I can do on my own?
 > Environmental habits(exercise, cleaning, papers) must go on first priority, even though they are the least important. It's infrastructure, not growth - but it is a pre-requisite for quality growth
 
 * [The two 2-minutes rules](https://youtu.be/0CmtDk-joT4)
+
+## Unrequited love, Grieving, and the power of love
+> To grieve deeply, is to have loved fully
+
+* Renouncing the ones you have loved & craved enough, may transform unending craving into a special place in your kindness when you spend time alone
