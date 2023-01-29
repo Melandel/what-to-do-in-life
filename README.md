@@ -41,3 +41,13 @@ What are things that make me feel happy that I can do on my own?
 > To grieve deeply, is to have loved fully
 
 * Renouncing the ones you have loved & craved enough, may transform unending craving into a special place in your kindness when you spend time alone
+
+## Weekends
+### Saturday: "break-your-limits" day
+* walking, personal records, etc
+
+### Sunday: "hindsight" day
+* Prepare for the week (cooking/cleaning/etc)
+* Explore/Push further in healthy lifelong habits (minimalism/exercise/etc)
+* Explore/Push further in bonding ability (cooking/cocktails/reading/meeting/dancing/singing)
+* Explore/Push further in daily life skills (software craftsmanship)
