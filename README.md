@@ -51,3 +51,11 @@ What are things that make me feel happy that I can do on my own?
 * Explore/Push further in healthy lifelong habits (minimalism/exercise/etc)
 * Explore/Push further in bonding ability (cooking/cocktails/reading/meeting/dancing/singing)
 * Explore/Push further in daily life skills (software craftsmanship)
+
+## Not feeling bad about the way you spend your time (there is always more productive!)
+* video games great stress relief but not good growth path
+* growth path more fulfilling when environmental socialization (diversity)
+* 2 types of hobbies with socialization:
+    * physical exercice
+    * fun: "consume what's enjoyable" (pleasure of senses)
+* "have a good time" can be distorted into "impress others/yourself by overcoming challenges/being the best (too much into self-improvement) 
